@@ -7,4 +7,3 @@ We shall see how it goes, eh.
 3. Diet coke
 
 [![Interesting][TenKomputer/Pulpit/Pierdy/Tapetens/ok](https://i.redd.it/msxls1zen9b31.jpg)
-![test][/TenKomputer/Pulpit/Pierdy/Tapetens/2.jpg]
