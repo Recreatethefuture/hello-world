@@ -6,4 +6,4 @@ We shall see how it goes, eh.
 2. Playstation5
 3. Diet coke
 
-![Eggolas!](/TenKomputer/Pulpit/Pierdy/Spooderman/Whatthefuckisthisshit.jpg)
+![Interesting](/https://i.redd.it/msxls1zen9b31.jpg)
